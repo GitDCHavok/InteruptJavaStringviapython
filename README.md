@@ -1,0 +1,2 @@
+# InteruptJavaStringviapython
+sincerely&amp;certainlysinistr
